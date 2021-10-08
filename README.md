@@ -1,0 +1,2 @@
+# selfbotku
+Ngapain om
